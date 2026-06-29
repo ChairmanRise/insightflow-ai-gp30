@@ -1,4 +1,4 @@
-# 
+# Ultimato InsightFlow script. Baixe e instale com sincronização em nuvem e verificação de compatibilidade — rápido, seguro e fácil de usar.
 
 
 
